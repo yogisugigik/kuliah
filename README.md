@@ -1,0 +1,2 @@
+# kuliah
+waktu_pemula
